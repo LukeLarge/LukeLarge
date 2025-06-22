@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Knowledge 
 - 🌱 I’m currently learning ... func
 - 💞️ I’m looking to collaborate on ...smart contracts
-- 📫 How to reach me ...lucaslarge69@icloud.com WA# 5802783444
+- 📫 How to reach me ...luke.large@icloud.com WA# 5802783444
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
